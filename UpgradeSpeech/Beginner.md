@@ -8,7 +8,7 @@ In the daytime tomorrow, the fog in some places will turn into a haze, but in th
 
 The cost of re-emergence of the blue sky is to cool down. Tomorrow, the northeast region will generally cool down by 2-6 degrees. The day after tomorrow, there will be a stronger cooling from the west to the east.
 
-For example, the highest temperature in Shenyang today is 4 degrees, which is 9 degrees higher than the average maximum temperature in the same period of the year. This can be said to be a rare warmth in 39th days. But, the maximum temperature is only negative seven degrees next Tuesday. On the next Monday and next Tuesday, temperatures in most parts of the north, including Shenyang, will fall back to the normal  level, or even slightly lower.
+For example, the highest temperature in Shenyang today is 4 degrees, which is 9 degrees higher than the average maximum temperature in the same period of the year. This can be said to be a rare warmth in 39th days. But the maximum temperature is only negative seven degrees next Tuesday. On the next Monday and next Tuesday, temperatures in most parts of the north, including Shenyang, will fall back to the normal  level, or even slightly lower.
 
 Come to pay attention to precipitation. From this evening to tomorrow, Jiangnan and south China still have a wide range of rainy days. In addition, there will be large blizzards in parts of west Tibet. 
 
