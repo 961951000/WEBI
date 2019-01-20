@@ -2,7 +2,7 @@ Hello everyone, and get to know the weather.
 
 Since entering the 39th days, the cold air has begun to slack off, leading to an increase in fog and haze in areas such as North China and Huanghuai. Today is the worst day of visibility in the near future. The visibility of these deep red areas on the map is generally less than 500 meters.
 
-From this evening to tomorrow morning, there will still be heavy fog or thick fog from Tianjin to the north part of Hunan. Among them, in the southwest part of Shandong, the visibility of the east part of Henan, the north and south parts of Anhui, and the central part of Hubei is less than 200 meters, and some areas have even strong fog with visibility less than 50 meters.
+From this evening to tomorrow morning, there will still be heavy fog or thick fog from Tianjin to the north part of Hunan. Among them, the visibility of the southwest part of Shandong, the east part of Henan, the north and south parts of Anhui, and the central part of Hubei is less than 200 meters, and some areas have even strong fog with visibility less than 50 meters.
 
 In the daytime tomorrow, the fog in some places will turn into a haze, but in the middle of north China, the impact of weak cold air will be weakened tomorrow. And the southerly position needs to wait until the arrival of the relatively strong cold air of the day after tomorrow, then the fog and haze will gradually weaken and dissipate from north to south.
 
