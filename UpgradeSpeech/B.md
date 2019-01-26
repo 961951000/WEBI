@@ -1,4 +1,4 @@
-Hello everyone, and get to know the weather.
+Hello everyone, let's focus on the weather together.
 
 Since entering the 39th days, the cold air has begun to slack off, leading to an increase in fog and haze in areas such as North China and Huanghuai. Today is the worst day of visibility in the near future. The visibility of these deep red areas on the map is generally less than 500 meters.
 
@@ -10,7 +10,7 @@ The cost of re-emergence of the blue sky is to cool down. Tomorrow, the northeas
 
 For example, the highest temperature in Shenyang is 4 degrees today, which is 9 degrees higher than the average highest temperature in the same period of the year. But the highest temperature is only negative 7 degrees next Tuesday. On the next Monday and next Tuesday, temperatures will fall back to the normal level or even slightly lower in most parts of the north.
 
-Finally let us pay attention to precipitation. From this evening to tomorrow, Jiangnan and south China still have a wide range of rainy days. In addition, there will be large blizzards in the part of west Tibet. 
+Finally let's pay attention to precipitation. From this evening to tomorrow, Jiangnan and south China still have a wide range of rainy days. In addition, there will be large blizzards in the part of west Tibet. 
 
 Let's take a look at the specific city weather forecast.
 
