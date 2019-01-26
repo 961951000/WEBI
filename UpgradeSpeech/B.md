@@ -10,7 +10,7 @@ The cost of re-emergence of the blue sky is to cool down. Tomorrow, the northeas
 
 For example, the highest temperature in Shenyang is 4 degrees today, which is 9 degrees higher than the average highest temperature in the same period of the year. But the highest temperature is only negative 7 degrees next Tuesday. On the next Monday and next Tuesday, temperatures will fall back to the normal level or even slightly lower in most parts of the north.
 
-Finally let's pay attention to precipitation. From this evening to tomorrow, Jiangnan and south China still have a wide range of rainy days. In addition, there will be large blizzards in the part of west Tibet. 
+Finally let's pay attention to precipitation. From this evening to tomorrow, there is still have a wide range of rainy days in south China. In addition, there will be large blizzards in the west part of Tibet. 
 
 Let's take a look at the specific city weather forecast.
 
